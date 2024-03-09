@@ -1,3 +1,3 @@
-Kata enekli a video games szamot.
+Kata zabalja a video games szamot.
 Most itt.
 Nem hiszem el ezt tul.
